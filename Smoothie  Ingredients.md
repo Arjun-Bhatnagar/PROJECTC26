@@ -1,0 +1,1 @@
+1 Banana , 1 cup of Greek Yogurt, 3 strawberries, 1 cup of milk
